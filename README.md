@@ -1,7 +1,7 @@
 # 💫About Me :
 👋Helo wolrd, im iden - nguyễn trung kiên
 
-🏫Im currently studying in fpt university
+🏫Im currently studying in fpt university, my major is information security and I am looking for some job opportunities in the security field.
 
 
 ## 🌐Socials
