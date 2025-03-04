@@ -1,5 +1,5 @@
 # 💫About Me :
-👋Helo wolrd, im iden - nguyễn trung kiên
+👋Helo wolrd, im iden - nguyễn trung kiên \n
 🏫Im currently studying in fpt university
 
 
